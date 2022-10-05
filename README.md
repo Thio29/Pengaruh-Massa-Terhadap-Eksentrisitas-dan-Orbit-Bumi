@@ -1,0 +1,1 @@
+# Pengaruh-Massa-Terhadap-Eksentrisitas-dan-Orbit-Bumi
